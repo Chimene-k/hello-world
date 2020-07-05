@@ -3,4 +3,4 @@
 Hi! 
 
 I'm Chimene. 
-My favorite desserts are pie anc ice cream at the moment.
+My favorite desserts are pie and ice cream at the moment.
