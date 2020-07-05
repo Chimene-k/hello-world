@@ -1,2 +1,6 @@
 # hello-world
-just another repository
+
+Hi! 
+
+I'm Chimene. 
+My favorite desserts are pie anc ice cream at the moment.
